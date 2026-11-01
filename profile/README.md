@@ -50,7 +50,7 @@ Artisans Labs is the trading name of **Kigali Web Artisans Ltd**, a Rwandan tech
 - **Engineers:** we hire through open roles and programmes. Watch this page and our Instagram for openings.
 - **Partners:** we're open to working with NGOs, programmes and companies building for access to justice and digital inclusion.
 
-**Contact:** info@kwartisans.com** · Instagram [@kwartisans_](https://www.instagram.com/kwartisans_/) · Rubavu, Rwanda
+**Contact:** info@kwartisans.com · Instagram [@kwartisans_](https://www.instagram.com/kwartisans_/) · Rubavu, Rwanda
 
 ---
 
